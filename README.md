@@ -1,1 +1,1 @@
-https://feruzakubatbekova.github.io/cloud/
+oud/
